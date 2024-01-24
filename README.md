@@ -1,6 +1,6 @@
-- 👋 Good day all! , I’m @NohSiHyeong
+- 👋 Good day all! , I’m @Si-Hyeong, Noh
 - 🌱 I’m a graduate school student at Sejong University and I'm in the M.S.course in Astronomy.
-- 👀 I’m interested in Cosmology and GR
+- 👀 I’m interested in Cosmology and General Relativity (GR)
 - 📫 Here is my E-mail!
       Main : starrynote88@gmail.com
       sub  : 23110107@sju.ac.kr
