@@ -3,7 +3,7 @@
 - 👀 I’m interested in Cosmology and General Relativity (GR)
 - 📫 Here is my E-mail and contacts
 - Main : starrynote88@gmail.com
-- sub  : 23110107@sju.ac.kr
+- sub  : sihyeong_noh@sju.ac.kr
 - Page : https://sites.google.com/view/starrynote88/
 - Instagram : https://www.instagram.com/yes_sihyeong/
 <!---
